@@ -6,6 +6,6 @@ kurz gesagt, ich bin ein tolle type.... ;)
 =======
 - Marianna
 - 25+
-- Ukraine
+- Wichtig ist wo ich bin
 - auf welche ich Lust habe
 
